@@ -1,0 +1,1 @@
+# Duplex(green technology)
